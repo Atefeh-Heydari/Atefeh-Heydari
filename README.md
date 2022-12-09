@@ -8,4 +8,4 @@
 
 ## Contact Info:
 - [LinkedIn](https://www.linkedin.com/in/atefeh-heydari/)
-- Atefeh.heydar@bonial.com
+- Atefeh.heydari@bonial.com
